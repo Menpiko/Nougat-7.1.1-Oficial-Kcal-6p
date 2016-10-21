@@ -1,0 +1,1 @@
+# Nougat-7.1.1-Oficial-Kcal-6p
